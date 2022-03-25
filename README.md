@@ -1,0 +1,8 @@
+- Hi, I’m Arthur Valentim
+- I'm 15 y old
+- I'm from Brazil
+- I’m interested in learn more about programing
+- I’m currently learning Full Stack Java Script
+- I'm looking to colaborate on questions, projects and more
+- I have an intention to work as a programmer
+- You can reach me on Discord: Yinʷᵗᶠ ʰᵒᵉ?#1172
